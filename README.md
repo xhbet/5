@@ -3,11 +3,11 @@
 
 🔗 官方链接
 
-主地址: https://xh338.vip/  
-备用地址: https://xh388.vip/  
-TG小程序: https://t.me/xhbetbot  
-TG频道: https://t.me/xihuwin  
-在线支持: https://t.me/xihu_win
+主地址: https://xihuww.com
+备用地址:  https://31026.vip
+TG机器人: https://t.me/xihu_labot 
+TG频道号: https://t.me/xihu_la 
+在线支持: https://t.me/XihuURL
 
 
 🔔 使用须知
@@ -15,4 +15,3 @@ TG频道: https://t.me/xihuwin
 复制链接至浏览器访问。  
 网络不畅？切换 Wi-Fi 环境。  
 西湖提供优质免费体验，感谢支持。
-
