@@ -4,9 +4,9 @@
 
 ## 🔗 官方链接
 
-主地址: https://xihuww.com
+主地址: https://228xh.vip
 
-备用地址:  https://31026.vip
+备用地址:  https://266xh.vip
 
 TG机器人: https://t.me/xihu_labot 
 
